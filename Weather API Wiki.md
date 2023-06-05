@@ -1,0 +1,1 @@
+https://github.com/Yeqzids/7timer-issues/wiki/Wiki
